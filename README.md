@@ -1,7 +1,10 @@
 # songltraj
 
 Song List-Trajectory
+
 Song lead trajedy trajectory 
+
+I suffered moderate-severe lead poisoning for a very bitter 17. These songs outline a recovery timeline.
 
 Sky and Sand - Fritz Kalkbrenner
 Dance Hall Days - Wang Chung
