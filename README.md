@@ -2,7 +2,7 @@
 
 Song List-Trajectory
 
-Song lead trajedy trajectory 
+Song lead tragedy trajectory 
 
 I suffered moderate-severe lead poisoning for a very bitter 17. These songs outline a recovery timeline.
 
